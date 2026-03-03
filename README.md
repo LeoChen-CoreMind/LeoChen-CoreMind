@@ -17,7 +17,7 @@ Leo 意为“狮子”，Chen 是我。
 
 ## Contact
 
-- Email: `leochen49622225@gmail.com`
+- Email: `leochen-job@outlook.com`
 
 ---
 如果你也在做这类方向，欢迎交流。
